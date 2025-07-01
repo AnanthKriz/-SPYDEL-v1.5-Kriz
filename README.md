@@ -1,6 +1,4 @@
----
 
-🕷️ README.md — For Private Tool Release
 
 # 🕷️ SPYDEL v1.5 — Kriz SpydelTrap
 
