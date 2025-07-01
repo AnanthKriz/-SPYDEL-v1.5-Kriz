@@ -7,7 +7,8 @@
 > 🔐 **PRIVATE TOOL – LICENSED FOR PAID CLIENTS ONLY**  
 > 🧠 Stealth Surveillance | No Popups | Telegram Integrated  
 > 👑 Developed by: AnanthKriz  
-> 📧 Purchase: ananthkrishnan394@gmail.com
+> 📧 Purchase:
+> ananthkrishnan394@gmail.com
 
 ---
 
